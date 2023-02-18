@@ -14,3 +14,4 @@ Os insights foram retirados analisando oque o proprietário queria e os dados.
 
 Ainda em desenvolvimento e por enquanto esse é o resultado!
 
+![meta](https://user-images.githubusercontent.com/89535654/219825190-30f19147-1c46-4f50-989f-06af00069c04.png)
