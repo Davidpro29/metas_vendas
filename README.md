@@ -21,4 +21,6 @@ Valeeeeeu!
 
 ![meta](https://user-images.githubusercontent.com/89535654/219825190-30f19147-1c46-4f50-989f-06af00069c04.png)
 
+![capametas](https://user-images.githubusercontent.com/89535654/219986589-496a3768-c858-4039-8b0a-4dfe6719c79e.png)
 
+![resumometas](https://user-images.githubusercontent.com/89535654/219986632-d38738b2-5dba-46dc-b5b7-433d682ed771.jpg)
